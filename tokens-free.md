@@ -1,4 +1,4 @@
-How to Get Free Stripchat Tokens Legally – No Hacks or Scams
+[How to Get Free Stripchat Tokens Legally](https://stripchatmod.weebly.com/) – No Hacks or Scams
 Many users search for "Stripchat tokens free" or "Stripchat token hack" hoping to find easy ways to get tokens without paying. However, most token generators or hacks are scams that can compromise your account. Instead, here are safe and legitimate ways to earn free Stripchat tokens.
 
 Legitimate Ways to Get Free Stripchat Tokens
